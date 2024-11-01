@@ -6,7 +6,7 @@
 
 The *Carrion MOD APK* is a thrilling horror-adventure game where you play as the monster, not the hero. This reverse horror concept lets you experience the story from the creature’s perspective, rampaging through a mysterious lab. Forget the hero’s journey – in *Carrion full APK*, you are the terror lurking in the dark. Unleash chaos, evolve powers, and unlock new abilities as you break free.
 
->Download Here: https://modhello.com
+>Download: [Carrion MOD APK](https://modhello.com/carrion/)
 
 - **Genre:** Action, horror, and adventure in a unique role-reversal
 - **Objective:** Escape the laboratory while consuming prey and outsmarting enemies
